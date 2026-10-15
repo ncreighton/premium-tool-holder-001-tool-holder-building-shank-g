@@ -1,0 +1,2 @@
+# premium-tool-holder-001-tool-holder-building-shank-g
+Stop losing your custom tool holder specs and shank grind settings in a sea of sticky notes and scrap paper. Your craft deserves a dedicated lab.  This Notion template transforms your tool holder building and shank grinding process into a repeatable, documented system. Track materials, dimensions, grind angles, and test results all in one place. No
